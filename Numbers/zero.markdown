@@ -15,7 +15,10 @@ Listen to the audiobook format of this chapters introduction here: LINK
 - A blank canvas
 - Beginning of a cycle
 
+### Bagua Area:
+- none
 ### Elements associated:
+- none
 ### Chakras associated:
 
 ### Colors associated:
