@@ -17,6 +17,7 @@ Listen to the audiobook format of this chapters introduction here: LINK
 
 ### Bagua Area:
 - none
+- symbol: none
 
 ### Equinox or Solstice:
 - none
