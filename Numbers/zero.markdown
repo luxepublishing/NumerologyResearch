@@ -22,6 +22,9 @@ Listen to the audiobook format of this chapters introduction here: LINK
 - none
 ### Elements associated:
 - none
+
+### Animal:
+- none
 ### Chakras associated:
 
 ### Colors associated:
