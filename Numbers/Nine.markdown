@@ -10,21 +10,20 @@ Listen to the audiobook format of this chapters introduction here: TBD
 
 ### Number Meanings:
 
-- 888 is true abundance
-- End of a cycle
-- Anything is possible
-- Success
-- Initiations
+- 999 angel number
+- higher consciousness
 
 ### Symbolism
-- Rounded shapes
-- cranes standing in water as a flock
-  - Part 3 imagery
-- Ingots
-- Windchimes
-- Horses
-- Moon phases
-  - significant phases for various reasons
+- 9 keys to your higher self
+- lights
+- red
+- plants
+- horse
+- phoenix
+- lotus
+- peonies
+- esoteric understanding
+- fire, the sun
 
 ### Bagua Area:
 - Northeast
@@ -49,6 +48,4 @@ Listen to the audiobook format of this chapters introduction here: TBD
 - Yin
 ### Stories from Mental Feng Shui:
 
-- Hades Ashes, Intro to Chapter 8
-- Double or Nothing
-- TBD
+- My Higher Self, journey looking back

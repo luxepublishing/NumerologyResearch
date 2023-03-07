@@ -13,16 +13,11 @@ Listen to the audiobook format of this chapters introduction here: TBD
 - Anything is possible
 - Success
 - Initiations
+- bee pollen benefits
 
 ### Symbolism
-- Rounded shapes
-- cranes standing in water as a flock
-  - Part 3 imagery
-- Ingots
-- Windchimes
-- Horses
-- Moon phases
-  - significant phases for various reasons
+- squared shapes
+- dripping honey
 
 ### Bagua Area:
 - Northeast
