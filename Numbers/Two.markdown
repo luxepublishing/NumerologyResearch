@@ -1,4 +1,4 @@
-# Two - Mind + Body + Soul = You
+# Two | Mind + Body + Soul = You
 
 Listen to the audiobook format of this chapters introduction here: TBD
 
