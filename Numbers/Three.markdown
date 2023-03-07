@@ -1,4 +1,4 @@
-# Three | Mind + Body + Soul = You
+# Three | Beauty And The Social Networking Beast
 
 Listen to the audiobook format of this chapters introduction here: TBD
 
