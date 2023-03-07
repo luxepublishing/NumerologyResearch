@@ -1,27 +1,29 @@
 # Zero
 
-Overarching theme: All or nothing.
+Listen to the audiobook format of this chapters introduction here: LINK
 
-Nicknames: The God number
+## Overarching theme: All or nothing.
 
-Meanings:
+### Nicknames: The God number
+
+### Number Meanings:
 
 - Infinite possibilities
 - First awakening
-Wholeness
-Emptiness
-A blank canvas
-Beginning of a cycle
+- Wholeness
+- Emptiness
+- A blank canvas
+- Beginning of a cycle
 
-Chakras associated:
+### Chakras associated:
 
-Colors associated:
+### Colors associated:
 
-Frequencies associated:
+### Frequencies associated:
 
-Yin or Yang?: Both Yin and Yang as one chooses to see it.
+### Yin or Yang?: Both Yin and Yang as one chooses to see it.
 
-Stories from Mental Feng Shui:
+### Stories from Mental Feng Shui:
 
 - Zeroth
 - Mental Software Update
