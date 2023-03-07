@@ -1,4 +1,4 @@
-# Three | Mind + Body + Soul = You
+# Six | The Metaphysical Nomad
 
 Listen to the audiobook format of this chapters introduction here: TBD
 
@@ -8,36 +8,42 @@ Listen to the audiobook format of this chapters introduction here: TBD
 
 ### Number Meanings:
 
-- Duality
-- Columns
-- Trees
-- Plants
-- Triangle
-- Pyramids
-- Heaven, Mankind, Earth
-- Trinity
+- Hexigons
+- Bees
+- Longevity
+- 6 Sections of night and day
+- 6 Cosmic points
+- Honey
+- The DAO of DAOS
+- Self Love
 
+### Symbolism
+- Bells
+- Bowls
+- Deities
+  
 ### Bagua Area:
-- East
-- symbol: ☲
+- Southwest
+- symbol: ☱
 
 ### Equinox or Solstice:
-- Summer Solstice
+- none
 ### Elements associated:
-- Wood
+- Earth
 
 ### Animal:
-- TBD
+- sheep, goat
 
 ### Chakras associated:
 
 ### Colors associated:
-- green
+- White
+- Peach
 
 ### Frequencies associated:
 
 ### Yin or Yang?
-- Yang
+- Yin
 ### Stories from Mental Feng Shui:
 
-- Three, Myself, And I
+- TBD

@@ -55,6 +55,5 @@ Listen to the audiobook format of this chapters introduction here: TBD
 - Yin
 ### Stories from Mental Feng Shui:
 
-- Epic Awakening
-- How Companies Mastermind
-- How Children Mastermind
+- Blessed Be
+- TBD

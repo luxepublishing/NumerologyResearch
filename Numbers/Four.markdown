@@ -23,7 +23,7 @@ Listen to the audiobook format of this chapters introduction here: TBD
 - symbol: ☲
 
 ### Equinox or Solstice:
-- none
+- Spring Equinox
 ### Elements associated:
 - Wood
 
