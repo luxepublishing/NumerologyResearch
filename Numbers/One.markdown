@@ -2,41 +2,40 @@
 
 Listen to the audiobook format of this chapters introduction here: TBD
 
-## Overarching theme: All or nothing.
+## Overarching theme: Beginning and conception
 
-### Nicknames: The God number
+### Nicknames: The Creative Force
 
 ### Number Meanings:
 
-- Infinite possibilities
-- First awakening
-- Wholeness
-- Emptiness
-- A blank canvas
-- Beginning of a cycle
+- A single tortoise
+- streams and lakes
+- new growth and potential
+- refocusing desires over fears
+- The career path
 
 ### Bagua Area:
-- none
-- symbol: none
+- Northwest
+- symbol: ☰
 
 ### Equinox or Solstice:
-- none
+- Summer Solstice
 ### Elements associated:
-- none
+- water
 
 ### Animal:
-- none
+- horse
 ### Chakras associated:
 
 ### Colors associated:
+- black
 
 ### Frequencies associated:
 ### Yin or Yang?
-- Both Yin and Yang as one chooses to see it.
+- Yang
 ### Stories from Mental Feng Shui:
 
-- Zeroth
-- Mental Software Update
-- The art of letting go
-- Not your dream
-- American Nightmare
+- A Purposeful Journey For Simple Pleasures
+- The New 1%
+- Dreamland
+- Harmony of The Triad
