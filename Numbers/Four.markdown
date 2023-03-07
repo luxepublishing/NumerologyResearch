@@ -1,4 +1,4 @@
-# Two | Mind + Body + Soul = You
+# Four | The Mastermind
 
 Listen to the audiobook format of this chapters introduction here: TBD
 
@@ -8,25 +8,32 @@ Listen to the audiobook format of this chapters introduction here: TBD
 
 ### Number Meanings:
 
-- Duality
-- Harmony And Balance
+- The 4 seasons
+- The 4 guardians
+  - Dragon
+  - Unicorn
+  - Kylin
+  - Phoneix
+- guardianship
+- boats, sailing ships
+- Square
 
 ### Bagua Area:
-- Southwest
-- symbol: ☱
+- East
+- symbol: ☲
 
 ### Equinox or Solstice:
 - none
 ### Elements associated:
-- Earth
+- Wood
 
 ### Animal:
-- sheep, goat
+- TBD
 
 ### Chakras associated:
 
 ### Colors associated:
-- black
+- green
 
 ### Frequencies associated:
 
@@ -34,4 +41,6 @@ Listen to the audiobook format of this chapters introduction here: TBD
 - Yin
 ### Stories from Mental Feng Shui:
 
-- TBD
+- Epic Awakening
+- How Companies Mastermind
+- How Children Mastermind

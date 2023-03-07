@@ -1,4 +1,4 @@
-# Two | Mind + Body + Soul = You
+# Three | Mind + Body + Soul = You
 
 Listen to the audiobook format of this chapters introduction here: TBD
 
@@ -9,29 +9,35 @@ Listen to the audiobook format of this chapters introduction here: TBD
 ### Number Meanings:
 
 - Duality
-- Harmony And Balance
+- Columns
+- Trees
+- Plants
+- Triangle
+- Pyramids
+- Heaven, Mankind, Earth
+- Trinity
 
 ### Bagua Area:
-- Southwest
-- symbol: ☱
+- East
+- symbol: ☲
 
 ### Equinox or Solstice:
 - none
 ### Elements associated:
-- Earth
+- Wood
 
 ### Animal:
-- sheep, goat
+- TBD
 
 ### Chakras associated:
 
 ### Colors associated:
-- black
+- green
 
 ### Frequencies associated:
 
 ### Yin or Yang?
-- Yin
+- Yang
 ### Stories from Mental Feng Shui:
 
-- TBD
+- Three, Myself, And I
