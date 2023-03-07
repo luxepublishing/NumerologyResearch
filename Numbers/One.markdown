@@ -15,7 +15,7 @@ Listen to the audiobook format of this chapters introduction here: TBD
 - The career path
 
 ### Bagua Area:
-- Northwest
+- North
 - symbol: ☰
 
 ### Equinox or Solstice:
