@@ -17,6 +17,9 @@ Listen to the audiobook format of this chapters introduction here: LINK
 
 ### Bagua Area:
 - none
+
+### Equinox or Solstice:
+- none
 ### Elements associated:
 - none
 ### Chakras associated:
@@ -24,7 +27,6 @@ Listen to the audiobook format of this chapters introduction here: LINK
 ### Colors associated:
 
 ### Frequencies associated:
-
 ### Yin or Yang?
 - Both Yin and Yang as one chooses to see it.
 ### Stories from Mental Feng Shui:
