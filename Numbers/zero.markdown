@@ -21,10 +21,12 @@ Listen to the audiobook format of this chapters introduction here: LINK
 
 ### Frequencies associated:
 
-### Yin or Yang?: Both Yin and Yang as one chooses to see it.
-
+### Yin or Yang?:
+- Both Yin and Yang as one chooses to see it.
 ### Stories from Mental Feng Shui:
 
 - Zeroth
 - Mental Software Update
 - The art of letting go
+- Not your dream
+- American Nightmare
