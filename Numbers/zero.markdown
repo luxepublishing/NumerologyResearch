@@ -1,4 +1,4 @@
-# Zero
+# Zero - The Art of Nothing And Everything
 
 Listen to the audiobook format of this chapters introduction here: LINK
 
@@ -15,6 +15,7 @@ Listen to the audiobook format of this chapters introduction here: LINK
 - A blank canvas
 - Beginning of a cycle
 
+### Elements associated:
 ### Chakras associated:
 
 ### Colors associated:
