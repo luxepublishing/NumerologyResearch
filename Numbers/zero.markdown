@@ -1,4 +1,4 @@
-# Zero - The Art of Nothing And Everything
+# Zero | The Art of Nothing And Everything
 
 Listen to the audiobook format of this chapters introduction here: TBD
 

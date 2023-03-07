@@ -1,4 +1,4 @@
-# One - Larger Than Earth
+# One | Larger Than Earth
 
 Listen to the audiobook format of this chapters introduction here: TBD
 
