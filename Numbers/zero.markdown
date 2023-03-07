@@ -6,8 +6,8 @@ Nicknames: The God number
 
 Meanings:
 
-Infinite possibilities
-First awakening
+- Infinite possibilities
+- First awakening
 Wholeness
 Emptiness
 A blank canvas
@@ -23,6 +23,6 @@ Yin or Yang?: Both Yin and Yang as one chooses to see it.
 
 Stories from Mental Feng Shui:
 
-Zeroth
-Mental Software Update
-The art of letting go
+- Zeroth
+- Mental Software Update
+- The art of letting go
