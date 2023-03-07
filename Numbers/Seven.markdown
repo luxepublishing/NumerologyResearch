@@ -1,37 +1,38 @@
-# Six | The Metaphysical Nomad
+# Seven | Soulfood
 
 Listen to the audiobook format of this chapters introduction here: TBD
 
 ## Overarching theme: Duality
 
-### Nicknames: The Creative Force
+### Nicknames: Investment food for thought
 
 ### Number Meanings:
 
-- Hexigons
-- Bees
-- Longevity
-- 6 Sections of night and day
-- 6 Cosmic points
-- Honey
-- The DAO of DAOS
-- Self Love
+- 777 is not lucky
+- Benzaiten, The Goddess of Art
+- 7 days of moon phases
+- complete cycle
+- 7X4=28
+- 28th year of birth significance
 
 ### Symbolism
-- Bells
-- Bowls
-- Deities
-- Coins
 - Rounded shapes
-  
+- cranes standing in water as a flock
+  - Part 3 imagery
+- Ingots
+- Windchimes
+- Horses
+- Moon phases
+  - significant phases for various reasons
+
 ### Bagua Area:
-- Southwest
+- West
 - symbol: ☱
 
 ### Equinox or Solstice:
 - none
 ### Elements associated:
-- Earth
+- Metal
 
 ### Animal:
 - sheep, goat
@@ -39,8 +40,7 @@ Listen to the audiobook format of this chapters introduction here: TBD
 ### Chakras associated:
 
 ### Colors associated:
-- White
-- Peach
+- white
 
 ### Frequencies associated:
 
